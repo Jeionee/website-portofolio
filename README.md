@@ -1,2 +1,2 @@
 # website-portofolio
-pengen buat website portofolio biar enak liatnya, p tutor!
+pengen belajar buat website portofolio, ajarin dong puh!
